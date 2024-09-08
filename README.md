@@ -1,4 +1,4 @@
-# Ramana
+# Guru Ramana
 
 ## Chants
 
