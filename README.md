@@ -13,7 +13,7 @@
 ## Additional Resources
 
 - **[Sri Ramana Maharshi Heritage - Home](https://www.srmh.org/index.html)**
-- *** [Youtube channel](https://www.youtube.com/@SriRamanaMaharshiHeritage) ***
+- ***[Youtube channel](https://www.youtube.com/@SriRamanaMaharshiHeritage)***
   
 - **[Indica Courses](https://indica.courses)**
 
