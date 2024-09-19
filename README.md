@@ -2,9 +2,9 @@
 
 ## Chants
 
-- **[Link to the Ashram website with audio and lyrics to the Tamil songs we chant](https://www.sriramanamaharshi.org/resource_centre/audio/songs/)**
+- **[Link to the Ashram website with audio and lyrics to the Tamil songs we chant](https://www.gururamana.org/Resources/Audios/tamil-parayana)**
   
-- **[Link to the Sanskrit Upadesa Saram lyrics](https://www.sriramanamaharshi.org/resource_centre/audio/upadesa-saram-lyrics-sanskrit/)**
+- **[Link to the Sanskrit Upadesa Saram lyrics](https://archive.arunachala.org/docs//collected-worm/upadesa-saram/)**
 
 - **[Link to the Sanskrit Arunachala Pancharatnam lyrics](https://www.sriramanamaharshi.org/resource_centre/audio/arunachala-pancharatnam-lyrics-sanskrit/)**
 
