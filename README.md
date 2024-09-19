@@ -6,7 +6,7 @@
   
 - **[Link to the Sanskrit Upadesa Saram lyrics](https://archive.arunachala.org/docs//collected-worm/upadesa-saram/)**
 
-- **[Link to the Sanskrit Arunachala Pancharatnam lyrics](https://www.sriramanamaharshi.org/resource_centre/audio/arunachala-pancharatnam-lyrics-sanskrit/)**
+- **[Link to the Sanskrit Arunachala Pancharatnam lyrics](https://docs.google.com/document/d/e/2PACX-1vQx5WbRQKUCkd9F6ui2XFv6nLkd4Lno988g-PZ-0SXHldKMUN9yvXNPEUYJL9RvmjAQm4yjj626vx22/pub?urp=gmail_link)**
 
 - **[Link to the Ashram website with audio and lyrics of hymns chanted on special occasions at Bhagavan's shrine](https://www.sriramanamaharshi.org/resource_centre/audio/hymns-shrine/)**
 
